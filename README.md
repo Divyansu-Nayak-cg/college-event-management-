@@ -149,7 +149,7 @@ Faith & Peace
 
 ### ❤️ New Happiness
 
-### ✨ New Hope
+### ✨ New Hope✨
 
 **May Lord Ganesha guide every new beginning.**
 
